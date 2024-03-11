@@ -4,7 +4,7 @@
  ## Youtube Video used in the Exhibit
  https://youtu.be/oSMJizH7hmY?si=eG-LS11L2HwtEG-7
 
-## Membhers
+## Members
 1. APA, GIUSIPPI MARIA II DEL ROSARIOAQUINO
 2. KARL ANDRE FRANCISCOAQUINO,
 3. MIRANDA, BIEN AARON CANSICIO
